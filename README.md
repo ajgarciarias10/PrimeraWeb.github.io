@@ -1,1 +1,0 @@
-# proyectowebmastermind.github.io
